@@ -1,3 +1,4 @@
+![Plush Daqinix](https://daqinix.com/bg.png)
 # 👋 Hey, I’m Dylan (a.k.a. Daqinix)
 ## My portfolio: https://daqinix.com
 ## My discord / ROBLOX username(s): *daqinix*
