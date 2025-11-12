@@ -1,5 +1,7 @@
 # 👋 Hey, I’m Dylan (a.k.a. Daqinix)
-
+## My portfolio: https://daqinix.com
+## My discord: *daqinix*
+## My email: help@daqinix.com
 I’m a designer, builder, and storyteller who’s been creating on **Roblox** for over a decade — from airlines to hotels, supermarkets to tech companies.  
 I founded **FreshLane**, a virtual supermarket roleplay group that reached over 30,000 members and became one of the most active roleplay communities on the platform.
 
